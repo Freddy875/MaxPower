@@ -1,3 +1,44 @@
+How do people celebrate **Independence Day** here?
+
+In Mexico, on Independence Day, we prepare Mexican food such as Mole, Chiles en Nogada, but my favorite is Pozole. We wear typical clothes from the Mexican Revolution, paint the Mexican flag on our faces, and watch the fireworks.
+
+![IndependenceDay1.jpeg](IndependenceDay1.jpeg)
+
+
+@[youtube](id|https://youtu.be/Aq4CccUx3-Q)
+
+---
+We always have a **big party** on Independence Day
+
+You can hear this song with its amazing rhythm in the movie 'El Infierno' (2010), directed by Luis Estrada.
+
+@[youtube](id|https://youtu.be/vVdWV5WdIWw)
+
+
+Other amazing Mexican movies:
+
+1. "Amores Perros" (2000)  dirrected by  Alejandro González Iñárritu.
+2. "Y Tu Mamá También" (2001) directed by Alfonso Cuarón.
+3. "El Laberinto del Fauno" (2006) directed by Guillermo del Toro.
+4. "Nosotros los Nobles" (2013) directed by Alazraki.
+5. "Roma" (2018) directed by Alfonso Cuarón.
+6. "La Ley de Herodes" (1999) directed by Luis Estrada. (Again)
+7. "El Crimen del Padre Amaro" (2002) directed by Carlos Carrera.
+8. "Temporada de Patos" (2004) directed by Fernando Eimbcke.
+9. "Como Agua Para Chocolate" (1992) directed by Alfonso Arau, it's a beautiful film based on the novel with the same name, written by Laura Esquivel.
+10. "La dictadura perfecta" (2014) directed by Luis Estrada, una sátira política.
+
+![IndependenceDay2.jpeg](IndependenceDay2.jpeg)
+
+
+---
+
+
+
+
+
+
+
 I love TV shows from the nineteen nineties
 
 ![1999.jpg](1999.jpg)
@@ -281,9 +322,13 @@ I **haven´t seen** Bob since we **saw** him at the championship game last fall.
 
 ![SeenAndSaw.jpeg](SeenAndSaw.jpeg)
 
-
 ---
 
+Fred is in a **bad mood** because he lost the championship. 
+
+![BadMood.jpeg](BadMood.jpeg)
+
+---
 
 
 
