@@ -279,6 +279,9 @@ I **haven´t been** in the gym since high school. I was a **runner**, and I trai
 
 I **haven´t seen** Bob since we **saw** him at the championship game last fall.
 
+![SeenAndSaw.jpeg](SeenAndSaw.jpeg)
+
+
 ---
 
 
