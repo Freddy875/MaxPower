@@ -33,10 +33,13 @@ Other amazing Mexican movies:
 
 ---
 
+On Independence Day it´s a custom to watch fireworks
 
+I didn’t know this song existed, but now thanks to ChatGPT, I discovered it and mixed the country rhythm with the warmth of Mexico. It’s the fusion of two worlds
 
+@[youtube](id|https://youtu.be/VQnHAb_6sOs)
 
-
+---
 
 
 I love TV shows from the nineteen nineties
@@ -330,6 +333,11 @@ Fred is in a **bad mood** because he lost the championship.
 
 ---
 
+**Eating** grapes is a **common custom** on **New Year´s Eve**
+
+![Grapes.jpeg](Grapes.jpeg)
+
+---
 
 
 
