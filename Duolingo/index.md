@@ -234,7 +234,52 @@ I´m not going there unless they have vegetarian dishes.
 
 ---
 
+My coworkers are nice, but they all work to much!
 
+![Coworkers.jpeg](Coworkers.jpeg)
+
+---
+
+- We all **hugged** when he **scored** the final point
+
+- By the way, watch the series Ted Lasso on Apple TV to learn about leadership, motivation, teamwork, positive masculinity, and more
+
+![Hugged.jpeg](Hugged.jpeg)
+
+---
+
+- Fred often goes to the gym after work to train for his athletic competitions. 
+
+![Gym.jpeg](Gym.jpeg)
+
+---
+
+It´s the **championship** game, Bob and Arthur´s team is actually winning!
+
+@[youtube](id|https://youtu.be/d5GkgVhFeZYl)
+
+
+![Championship.jpeg](Championship.jpeg)
+
+---
+
+If they all train every day, whay do they play so badly?
+
+---
+
+I **haven´t been** in the gym since high school. I was a **runner**, and I trained all the time.
+
+---
+
+**Look** we all know that we can win this game!
+
+![WinThisTime.jpeg](WinThisTime.jpeg)
+
+---
+
+I **haven´t seen** Bob since we **saw** him at the championship game last fall.
+
+---
 
 
 
