@@ -38,6 +38,212 @@ Frida decided to take the day off because she really needed a break from work!
 
 ---
 
-My friends got off 
+My friends got off work three hours ago, but I haven´t gotten off work yet
+
+![GetOff.jpeg](GetOff.jpeg)
+
+---
+
+- How much money is the car worth?
+- How many miles does it have?
+
+![HowMuchHowMany.jpg](HowMuchHowMany.jpg)
+
+---
+
+I´m busy today, so we´re meeting upt on Friday, instead.
+
+![Instead.PNG](Instead.PNG)
+
+---
+
+Rosa decides witch math courses the college should offer because she´s in change of the math departament.
+
+![Math.jpeg](Math.jpeg)
+
+---
+
+Doctors are excited about the discovery. We finally have a new medicne for this illness.
+
+![Medicine.PNG](Medicine.PNG)
+
+---
+
+When would you like yo meet up?
+
+![MeetUp.PNG](MeetUp.PNG)
+
+---
+
+Their menu is really inexpensive on weekdays.
+
+![Menu.jpg](Menu.jpg)
+
+---
+
+I´ve learned not to trust the mirrors in the fitting rooms!
+
+![Mirror.PNG](Mirror.PNG)
+
+@[youtube](id|https://youtu.be/PivWY9wn5ps)
+
+---
+
+We get a monthly bill, but it´s not very expensive.
+
+![MonthlyBill.jpg](MonthlyBill.jpg)
+
+---
+
+Ok, Mr. Bear, you need to take a shower! You canpt put it off any longer!
+
+![MrBear.jpeg](MrBear.jpeg)
+
+---
+
+Pietro got his new car for a bargain. He paid much less than the regular price. 
+
+![MuchLess.jpeg](MuchLess.jpeg)
+
+---
+
+I went out with him once, and I´ll never do it again!
+
+![OnceAndNever.PNG](OnceAndNever.PNG)
+
+---
+
+This store is the only sotre where you can buy that.
+
+![OnlySotre.PNG](OnlySotre.PNG)
+
+---
+
+We´re going to meet up in Paris when we´re both there!
+
+![Paris.PNG](Paris.PNG)
+
+@[youtube](id|https://youtu.be/fRNkQH4DVg8)
+
+---
+
+I never have money left after paying my rent and bills.
+
+![PayingMyRent.jpg](PayingMyRent.jpg)
+
+---
+
+This inexpensive perfumes are *as good as* the rest.
+
+![Perfumes.jpg](Perfumes.jpg)
+
+---
+
+She was about to leave when her phone rang
+
+![PhoneRang.PNG](PhoneRang.PNG)
+
+@[youtube](id|https://youtu.be/1gWN0KMrNLI)
+
+---
+
+- Can you get off work this afternoon?
+
+- I´m sorry, but I can´t put off this meeting.
+
+![PutOff.jpeg](PutOff.jpeg)
+
+---
+
+During book club, Laura and Max discussed what they liked most about the book they were reading.
+
+![Reading.jpeg](Reading.jpeg)
+
+---
+
+- I need to learn to relax!
+- I know! You´re so stressed all the time!
+
+![Relax.jpeg](Relax.jpeg)
+
+---
+
+- Who´s in charge of reserving the restaurant?
+
+Alternative
+
+- Who´s in charge of booking the restaurant?
+
+![Reserving.jpeg](Reserving.jpeg)
+
+---
+
+I´ll return the shopping cart.
+
+![Return.jpeg](Return.jpeg)
+
+---
+
+My afternoon routine is really important to me.
+
+![Routine.PNG](Routine.PNG)
+
+---
+
+The sandwich was five dollars and the drink was to, so the final amount with tax should be about 8 dollars.
+
+![Sandwich.jpg](Sandwich.jpg)
+
+---
+
+- Can´t you schedule your meeting for next week?
+
+- No, they won´t let me put it off.
+
+![Shedule.jpeg](Shedule.jpeg)
+
+---
+
+No I didn´t schedule the appointment. I haven´t scheduled it yet because I´m not sure when I´m off. 
+
+![ScheduleII.jpeg](ScheduleII.jpeg)
+
+---
+
+There are only two T-shirts left on the shelf!
+
+![Tshirt.jpg](Tshirt.jpg)
+
+---
+
+You can´t return underwear if you´ve already worn it!
+
+![Underwear.PNG](Underwear.PNG)
+
+---
+
+Unless it´s raining, let´s meet at the park.
+
+![Unless.jpeg](Unless.jpeg)
+
+---
+
+I´m not going there unless they have vegetarian dishes. 
+
+![Vegetarian.jpeg](Vegetarian.jpeg)
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
 
 
