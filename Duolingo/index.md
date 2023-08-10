@@ -339,6 +339,33 @@ Fred is in a **bad mood** because he lost the championship.
 
 ---
 
+- Can Grandma **make it** to come the **Christmas party** ?
+- Yes, she´s coming. 
+
+![Grandma.jpeg](Grandma.jpeg)
+
+---
+
+Our family **hasn´t had** a **family reunion** since 2020. In 2021 we **had** a video chat instead. 
+
+---
+
+We **have gone** to the annual office party every year since 2010. Over 200 people went last year. 
+
+---
+
+Sorry I couldn´t make it 
+
+---
+
+**No one** in the family **knowns** how the custom **began!**
+
+@[youtube](id|https://youtu.be/NgNm1ADpQO0)
+
+@[youtube](id|https://youtu.be/woS5m96RNzo)
+
+---
+
 
 
 
