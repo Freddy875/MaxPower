@@ -366,32 +366,6 @@ Sorry I couldn´t make it
 
 ---
 
----
-
-I´m **in charge** of a **new team** at work, and I´m so busy. 
-
-![NewTeam.jpeg](NewTeam.jpeg "New Team")
-
----
-
-- You´ll never know unless you **try it!**
-
-![TryIt.jpeg](TryIt.jpeg "Try it")
-
----
-
-Let´s watch that **new movie** unless you´ve already **seen** it
-
----
-
-I´m sure I can **make it** to the party for an hour or two.
-
-![MakeIt.jpeg](MakeIt.jpeg "Make It")
-
----
-
-Our annual family reunion is next month
-
 
 
 
