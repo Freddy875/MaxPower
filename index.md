@@ -392,6 +392,78 @@ I´m sure I can **make it** to the party for an hour or two.
 
 Our annual family reunion is next month
 
+---
+
+I dont want to go on a **cruise** for our honeymoon. I hate traveling by sea!
+
+**Cruise** means a vacation on a ship
+
+@[youtube](id|https://youtu.be/Go7gn6dugu0)
+
+---
+
+- Does the cruise stop at Barcelona ?
+
+---
+- Have you ever taken a cruise?
+- Yes, we **sailed** to Mexico last year
+
+@[youtube](id|https://youtu.be/ug_bgSWRk_g)
+
+@[youtube](id|https://youtu.be/G6AcBEz3Qxg)
+
+---
+
+- This **luxury** apartment cost so much because it has a pool and a gym.
+- **Luxury** means expensive and high-quality
+
+@[youtube](id|https://youtu.be/qMxX-QOV9tI)
+
+---
+
+## The ferry
+
+We **took** the ferry from England to France. 
+@[youtube](id|https://youtu.be/Up4WjdabA2c)
+
+---
+
+Let´s take the ferry instead of the bus.
+
+---
+
+The bridge **is closed**, but you can take the ferry
+
+---
+
+If you go **backpacking through** a region you travel around that place with a big bag on you back. 
+
+@[youtube](id|https://youtu.be/K0HSD_i2DvA)
+
+---
+
+If you don´t like driving, consider taking a train. 
+@[youtube](id|https://youtu.be/-lEPX2fF4Ls)
+
+---
+
+- We want to learn some history on our **trip to Europe**
+
+- If you like history, visit London!
+
+@[youtube](id|https://youtu.be/BGLGzRXY5Bw)
+
+---
+
+When I was young, I went backpacking **through the jungle**
+
+@[youtube](id|https://youtu.be/_7PUPNxsRQ0)
+
+
+
+
+
+
 
 
 
