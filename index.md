@@ -461,6 +461,86 @@ When I was young, I went backpacking **through the jungle**
 @[youtube](id|https://youtu.be/_7PUPNxsRQ0)
 
 
+---
+
+A **one-way** ticket lets you travel to a place but you need a different ticket to come back.
+
+@[youtube](id|https://youtu.be/36mCEZzzQ3o)
+
+---
+
+Lorena bought a **one-way** ticket to Los Angeles. 
+
+---
+
+A **round-trip** tickets lets you travel to a place and then **come back**
+
+@[youtube](id|https://youtu.be/HCm6gRHINqA)
+
+---
+
+I bought a **round-trip** ticket, so of course I´m **coming back!**
+
+@[youtube](id|https://youtu.be/-5ecZWwO_hQ)
+
+---
+
+- How much is a **round-trip** flight
+- I´d like a ticket to **Chicago** please. 
+
+@[youtube](id|https://youtu.be/1A0MPWseJIE)
+
+---
+
+- I´d like a ticket to **Chicago** please
+- **Round-trip** or **one-way**
+
+@[youtube](id|https://youtu.be/CRfy1yorkec)
+
+---
+
+- It can be expensive to fly there in July, but it´s cheaper if you **book** your flight
+- It can be expensive to fly there in July, but it´s cheaper if you **reserve** your flight
+
+Both sentences convey the same meaning. You can use either "If you book your flight in advance" or "If you reserve your flight in advance" interchangeably to express the idea that making arrangements for your flight ahead of time will have a positive outcome. There is no significant difference in meaning between the two sentences in this context.
+
+---
+
+She says we can sit **wherever**
+
+@[youtube](id|https://youtu.be/2u6uXuT9pm4)
+
+---
+
+Hector brings the same black backpack and suitcase wherever he travels. 
+
+---
+
+A little dog **followed us** wherever we went. 
+
+You can listen to this song in the movie Guardians of the Galaxy Vol. 3.
+
+@[youtube](id|https://youtu.be/iWOyfLBYtuU)
+
+---
+
+If you arrive late, they´ll make you pay extra. 
+
+---
+
+Can we **agree** that I´m **booking** the hotel next time?
+
+@[youtube](id|https://youtu.be/e9BLw4W5KU8)
+
+---
+
+If it´s **good weather** , we´ll walk to the beach. 
+
+@[youtube](id|https://youtu.be/apBWI6xrbLY)
+
+---
+
+
 
 
 
