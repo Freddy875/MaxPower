@@ -392,6 +392,346 @@ I´m sure I can **make it** to the party for an hour or two.
 
 Our annual family reunion is next month
 
+---
+
+I dont want to go on a **cruise** for our honeymoon. I hate traveling by sea!
+
+**Cruise** means a vacation on a ship
+
+@[youtube](id|https://youtu.be/Go7gn6dugu0)
+
+---
+
+- Does the cruise stop at Barcelona ?
+
+---
+- Have you ever taken a cruise?
+- Yes, we **sailed** to Mexico last year
+
+@[youtube](id|https://youtu.be/ug_bgSWRk_g)
+
+@[youtube](id|https://youtu.be/G6AcBEz3Qxg)
+
+---
+
+- This **luxury** apartment cost so much because it has a pool and a gym.
+- **Luxury** means expensive and high-quality
+
+@[youtube](id|https://youtu.be/qMxX-QOV9tI)
+
+---
+
+## The ferry
+
+We **took** the ferry from England to France. 
+@[youtube](id|https://youtu.be/Up4WjdabA2c)
+
+---
+
+Let´s take the ferry instead of the bus.
+
+---
+
+The bridge **is closed**, but you can take the ferry
+
+---
+
+If you go **backpacking through** a region you travel around that place with a big bag on you back. 
+
+@[youtube](id|https://youtu.be/K0HSD_i2DvA)
+
+---
+
+If you don´t like driving, consider taking a train. 
+  
+@[youtube](id|https://youtu.be/-lEPX2fF4Ls)
+
+---
+
+- We want to learn some history on our **trip to Europe**
+
+- If you like history, visit London!
+
+@[youtube](id|https://youtu.be/BGLGzRXY5Bw)
+
+---
+
+When I was young, I went backpacking **through the jungle**
+
+@[youtube](id|https://youtu.be/_7PUPNxsRQ0)
+
+
+---
+
+A **one-way** ticket lets you travel to a place but you need a different ticket to come back.
+
+@[youtube](id|https://youtu.be/36mCEZzzQ3o)
+
+---
+
+Lorena bought a **one-way** ticket to Los Angeles. 
+
+---
+
+A **round-trip** tickets lets you travel to a place and then **come back**
+
+@[youtube](id|https://youtu.be/HCm6gRHINqA)
+
+---
+
+I bought a **round-trip** ticket, so of course I´m **coming back!**
+
+@[youtube](id|https://youtu.be/-5ecZWwO_hQ)
+
+---
+
+- How much is a **round-trip** flight
+- I´d like a ticket to **Chicago** please. 
+
+@[youtube](id|https://youtu.be/1A0MPWseJIE)
+
+---
+
+- I´d like a ticket to **Chicago** please
+- **Round-trip** or **one-way**
+
+@[youtube](id|https://youtu.be/CRfy1yorkec)
+
+---
+
+- It can be expensive to fly there in July, but it´s cheaper if you **book** your flight
+- It can be expensive to fly there in July, but it´s cheaper if you **reserve** your flight
+
+Both sentences convey the same meaning. You can use either "If you book your flight in advance" or "If you reserve your flight in advance" interchangeably to express the idea that making arrangements for your flight ahead of time will have a positive outcome. There is no significant difference in meaning between the two sentences in this context.
+
+---
+
+She says we can sit **wherever**
+
+@[youtube](id|https://youtu.be/2u6uXuT9pm4)
+
+---
+
+Hector brings the same black backpack and suitcase wherever he travels. 
+
+---
+
+A little dog **followed us** wherever we went. 
+
+You can listen to this song in the movie Guardians of the Galaxy Vol. 3.
+
+@[youtube](id|https://youtu.be/iWOyfLBYtuU)
+
+---
+
+If you arrive late, they´ll make you pay extra. 
+
+---
+
+Can we **agree** that I´m **booking** the hotel next time?
+
+@[youtube](id|https://youtu.be/e9BLw4W5KU8)
+
+---
+
+If it´s **good weather** , we´ll walk to the beach. 
+
+@[youtube](id|https://youtu.be/apBWI6xrbLY)
+
+---
+
+# Maybe and perhaps
+
+**“Maybe”** and **“perhaps”** are both adverbs used to express uncertainty or possibility. They are often used interchangeably, but there are some subtle differences in usage and formality.
+
+1. Maybe:
+
+“Maybe” is more commonly used in informal contexts. It’s straightforward and casual.
+Example: “I’ll maybe go to the movies later.”
+“Maybe” is often used at the beginning or middle of a sentence.
+
+2. Perhaps:
+
+“Perhaps” is slightly more formal and can be used in both formal and informal contexts, but it’s generally considered a bit more polite.
+Example: “Perhaps we should consider another approach.”
+“Perhaps” can be used in the middle or at the beginning of a sentence, but it’s more common at the beginning in formal writing.
+Both words are used to express uncertainty or possibility, but “perhaps” has a slightly more refined and polite tone, making it a good choice in more professional or academic settings. “Maybe” is more commonly used in everyday conversations.
+
+Usage Examples:
+
+Maybe: "I’m not sure if I’ll be able to make it to the party. Maybe I’ll come a bit later."
+Perhaps: “Perhaps it would be best to reschedule the meeting to accommodate everyone’s availability.”
+
+In summary, the choice between “maybe” and “perhaps” often depends on the context and the level of formality you wish to convey. Both words can be used to indicate uncertainty or possibility, but “perhaps” is generally considered slightly more formal and polite.
+
+---
+**Passangers** usually **board** a flight thirty minutes before the plane leaves.
+
+**board** means **get on**
+
+It reminds me of a beautiful science fiction and romantic movie called "Passengers"
+starring Chris Pratt and Jennifer Lawrence. The movie implies that humans always need company.
+
+You say you want education in English. Well, you know, we all want to change the world, but when you scream at people, I don't think you deserve to teach. Go4More
+
+Instead, Platzi and Duolingo are truly revolutionizing education.
+
+[Passengers.jpg](Passengers.jpg "Passengers")
+
+---
+
+There´s a direct flight from here to Boston, You don´t need to fly to New York first.
+
+Direct flight means without stopping.
+
+---
+
+Is this a direct flight to London, or will we have to stop in another city first. 
+
+[DirectFlight.PNG](DirectFlight.PNG "DirectFlight")
+
+---
+
+There used to be direct flights from here to Madrid. 
+
+[Madrid.PNG](Madrid.PNG "Madrid")
+
+---
+
+Did you **get** that?
+
+Once I read that you can use get as a synonym of undestand. Even is more common to use that **understand**. 
+
+The word "get" can be used as a synonym for "understand" in informal speech. For example, you might say "I get what you're saying" or "I don't get it".
+
+The word "get" is more common than "understand" in informal speech because it is shorter and easier to say. It is also more versatile, as it can be used in a wider variety of contexts.
+
+However, the word "understand" is still the more formal and accurate way to say that you comprehend something. So, if you are writing or speaking in a formal setting, it is best to use the word "understand".
+
+Here are some examples of how the word "get" can be used as a synonym for "understand":
+
+- "I finally get what you're saying."
+- "I don't get this math problem."
+- "Can you help me get this?" (meaning "understand this")
+- "I get it now." (meaning "I understand now")
+
+[Get.PNG](Get.PNG "Get")
+
+---
+
+He says the bus has already **departed**
+
+[Departed.PNG](Departed.PNG "Departed")
+
+---
+
+Passengers in Row A to F may board the plane at this time.
+
+[PassengersII.PNG](PassengersII.PNG "PassengersII")
+
+---
+
+I hope we can find a direct flight to Colombia
+
+[Colombia.PNG](Colombia.PNG "Colombia")
+
+---
+
+My flight departes from Lima at non, and it gets to New York at 8 p.m.
+
+---
+I
+- I´m not sure to get what you´re what you´re saying.
+
+- Sorry, I´ll try to explain what I mean. 
+
+[GetAndTry.PNG](GetAndTry.PNG "GetAndTry")
+
+---
+
+Our flight won´t depart if this strom continues.
+
+---
+
+Sorry, could you repeat that? I didn´t get what you were saying.
+
+[GetII.PNG](GetII.PNG "GetII")
+
+---
+
+You need to show ID when you´re **boarding** the plane.
+
+---
+
+I´m sorry, ma´am but your plane has just **departed**
+
+[DepartedII.PNG](DepartedII.PNG "DepartedII.PNG")
+
+---
+
+When we went **backpacking**, we couldn´t afford nice **hotels**, so we saty in **hostels**
+
+**Hostels** means a **hotel** with shared rooms. 
+
+---
+
+I stayed at some great **hostels** when I went **backpacking**
+
+[Hostels.PNG](Hostels.PNG "Hostels")
+
+---
+
+A **fare** is the money you pay to travel by bus, train, or similar kind of trasportation. 
+
+---
+
+I only had dollars, so I went to the **currency exchange** at the airport and got some euros.
+
+---
+
+Would you mind saying that again?
+
+[Again.PNG](Again.PNG "Again")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/v=eW2qlKa6oHw" frameborder="0" allowfullscreen></iframe>
+
+---
+
+Mia is **away** this week, an I´m really missing her!
+
+---
+
+He feels sick after riding the bus through the mountains.
+
+[Mountains.PNG](Mountains.PNG "Mountains")
+
+---
+
+Frida has been riding the same bus for nearly fifty years!
+
+[Frida.PNG](Frida.PNG "Frida")
+
+---
+
+Tickets were cheap until they **increased** the **fares**
+
+[Fares.PNG](Fares.PNG "Fares")
+
+---
+
+Do you know if there´s a **hostel** on this street?
+
+[HostelsII.PNG](HostelsII.PNG "HostelsII.PNG")
+
+---
+
+## About the autor.
+
+ <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
+
+<div class="badge-base LI-profile-badge" data-locale="es_ES" data-size="large" data-theme="dark" data-type="HORIZONTAL" data-vanity="fernando-sanchez-mejia" data-version="v1"><a class="badge-base__link LI-simple-link" href="https://mx.linkedin.com/in/fernando-sanchez-mejia?trk=profile-badge">Fernando Sanchez Mejia</a></div>
+
+
 
 
 
