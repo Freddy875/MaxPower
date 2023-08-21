@@ -725,6 +725,52 @@ Do you know if there´s a **hostel** on this street?
 
 ---
 
+You don´t have a direct flight to Tokio. You have a **layover** in Los Angeles for three hours. 
+
+Meanwhile you can listen to those amazing songs
+
+@[youtube](id|https://youtu.be/YkADj0TPrJA?si=O81SaTScqH9YoM17)
+
+@[youtube](id|https://youtu.be/tl6u2NASUzU?si=H0WbEi7RUkW3ypn8)
+
+---
+
+Luigi is **walking quickly** to get to his next flight because his **layover** is very short. 
+
+---
+
+When you **hitchhike**, you stand by the road and hope that some driver will stop and give you a ride. 
+
+While I was waiting, I was listening to this amazing song. Fortunately, I didn't have to wait for so much time because a truck stopped it.
+
+@[youtube](id|https://youtu.be/K0HSD_i2DvA?si=GUh0kg3Gn0NLODOY)
+  
+---
+
+We´re not **having much fun** on this vacation!
+@[youtube](id|https://youtu.be/1GqhBP2Pp6o?si=05Qnl9uYAWpqiNdT)
+
+---
+
+**Riding** a bike is a cool way to explore Berling.
+While I was riding my bike, I was listening to my playlist for training, and this was my first song.
+
+@[youtube](id|https://youtu.be/gWJ8_B9BVxo?si=v5VHt4ZKlLRStZrK)
+
+---
+
+I **hurt** my foot, so I wasn´t able to **explore** much. 
+
+---
+
+The next day, the **temperature fell** thirty **degrees!**
+
+That's wonderful. I love the cold. Remember to always wear warm clothes.
+
+@[youtube](id|https://youtu.be/XatXy6ZhKZw?si=t_As-gjyFcDm1m7o)  
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
