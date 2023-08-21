@@ -771,6 +771,45 @@ That's wonderful. I love the cold. Remember to always wear warm clothes.
 
 ---
 
+We **walked** all day on Monday so the next day my feet were **sore!**
+
+**“Sore”** can be used as a synonym for **“hurt”** in certain contexts, especially when referring to physical discomfort or pain in a specific part of the body.
+
+For example:
+
+- My muscles are sore after the intense workout.
+- Her throat is sore because she has a cold.
+- I can’t walk properly; my feet are really sore.
+
+However, it’s important to note that **“sore”** is often used to describe a specific type of discomfort, such as the result of muscle strain, injury, or illness, whereas **“hurt”** can have a broader range of meanings and can refer to emotional pain as well.
+
+---
+
+- Would you like to **explore** the city tommorow
+- God idea! Let´s walk arount the **old town**
+
+@[youtube](id|https://youtu.be/pl5WHx8QCVk?si=uIS7OUynCkwvNNjE)
+
+---
+
+Dad met Mom when he was **hitchhinking** across the US. 
+
+@[youtube](id|https://youtu.be/c5BL4RNFr58?si=OdWfZLl03YbBBssA)
+
+---
+
+I´m really busy this year, so I´m not **traveling** much. 
+
+---
+
+I **don´t mind** to **layovers** but not for ten hours!
+
+Not even my playlist can save me because I don't have enough battery life. Well, I suppose, meanwhile, I could do sightseeing in Los Angeles. Perhaps I'll find a cafeteria where I could recharge it.
+
+@[youtube](id|https://youtu.be/OmliBRZUxnk?si=6cSexcqnsfwTsYTG)
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
