@@ -835,6 +835,10 @@ Not even my playlist can save me because I don't have enough battery life. Well,
 
 ---
 
+Being early is on time, being on time is late.
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
