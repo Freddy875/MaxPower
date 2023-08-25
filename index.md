@@ -823,6 +823,15 @@ Not even my playlist can save me because I don't have enough battery life. Well,
 - How do you usually get permission to enter an office building?
 - You can usually get permission to enter an office building with an access card, visitor pass, or authorization from the front desk.
 
+---
+
+- How can someone find their way to a popular tourist sight if they’re not familiar with the city?
+- You can use a map. You could even use the GPS in your smartphone.
+
+---
+
+- How do you sign in to your work email account?
+- You can enter with your credentials, using your username and password.
 
 ---
 
