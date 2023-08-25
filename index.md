@@ -810,6 +810,22 @@ Not even my playlist can save me because I don't have enough battery life. Well,
 
 ---
 
+- How can someone dry their hair after getting out of the hotel pool or shower?
+- You can dry your hair with a towel, or you can find a hair dryer in your room.
+
+---
+
+- What’s a typical way of paying for a subway or bus ride that doesn’t accept cash?
+- In Mexico, you can pay for subway rides and certain bus rides with a card. You can recharge the card using a machine. Simply insert the card into the machine, pay the amount, and your card will be recharged
+
+---
+
+- How do you usually get permission to enter an office building?
+- You can usually get permission to enter an office building with an access card, visitor pass, or authorization from the front desk.
+
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
