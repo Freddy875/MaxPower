@@ -899,6 +899,39 @@ Our flight won´t **depart** if this storm **continues**
 
 ---
 
+Remember to **book a room** with a nice view. 
+
+In Mexico, we used to say. With a view of the sea.
+
+![BookARoom.PNG](BookARoom.PNG "Book a Room ")
+
+
+---
+
+He **tried** to board the bus with a parrot on his **shoulder!**
+
+Once I saw a man with an **iguana** board a bus in Acapulco, Mexico.
+
+![Parrot.PNG](Parrot.PNG "Parrot.PNG")
+
+---
+
+Fred the turtle is **hoping** to the **hitchhike** to the city, but Oscar isn´t going to give him a **ride!**
+
+![Hitchhike.PNG](Hitchhike.PNG "Hitchhike")
+
+---
+
+- I didn´t hear him. I hope he says that again!.
+- Yes, me too!
+
+![MeToo.PNG](MeToo.PNG "Me Too")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qDRORgoZxZU?si=GSCvTYoS_jD1vjC3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
