@@ -576,7 +576,7 @@ You say you want education in English. Well, you know, we all want to change the
 
 Instead, Platzi and Duolingo are truly revolutionizing education.
 
-[Passengers.jpg](Passengers.jpg "Passengers")
+![Passengers.jpg](Passengers.jpg "Passengers")
 
 ---
 
