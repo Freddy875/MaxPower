@@ -565,7 +565,7 @@ Perhaps: “Perhaps it would be best to reschedule the meeting to accommodate ev
 In summary, the choice between “maybe” and “perhaps” often depends on the context and the level of formality you wish to convey. Both words can be used to indicate uncertainty or possibility, but “perhaps” is generally considered slightly more formal and polite.
 
 ---
-**Passangers** usually **board** a flight thirty minutes before the plane leaves.
+**Passengers** usually **board** a flight thirty minutes before the plane leaves.
 
 **board** means **get on**
 
@@ -725,19 +725,123 @@ Do you know if there´s a **hostel** on this street?
 
 ---
 
+You don´t have a direct flight to Tokio. You have a **layover** in Los Angeles for three hours. 
+
+Meanwhile you can listen to those amazing songs
+
+@[youtube](id|https://youtu.be/YkADj0TPrJA?si=O81SaTScqH9YoM17)
+
+@[youtube](id|https://youtu.be/tl6u2NASUzU?si=H0WbEi7RUkW3ypn8)
+
+---
+
+Luigi is **walking quickly** to get to his next flight because his **layover** is very short. 
+
+---
+
+When you **hitchhike**, you stand by the road and hope that some driver will stop and give you a ride. 
+
+While I was waiting, I was listening to this amazing song. Fortunately, I didn't have to wait for so much time because a truck stopped it.
+
+@[youtube](id|https://youtu.be/K0HSD_i2DvA?si=GUh0kg3Gn0NLODOY)
+  
+---
+
+We´re not **having much fun** on this vacation!
+@[youtube](id|https://youtu.be/1GqhBP2Pp6o?si=05Qnl9uYAWpqiNdT)
+
+---
+
+**Riding** a bike is a cool way to explore Berling.
+While I was riding my bike, I was listening to my playlist for training, and this was my first song.
+
+@[youtube](id|https://youtu.be/gWJ8_B9BVxo?si=v5VHt4ZKlLRStZrK)
+
+---
+
+I **hurt** my foot, so I wasn´t able to **explore** much. 
+
+---
+
+The next day, the **temperature fell** thirty **degrees!**
+
+That's wonderful. I love the cold. Remember to always wear warm clothes.
+
+@[youtube](id|https://youtu.be/XatXy6ZhKZw?si=t_As-gjyFcDm1m7o)  
+
+---
+
+We **walked** all day on Monday so the next day my feet were **sore!**
+
+**“Sore”** can be used as a synonym for **“hurt”** in certain contexts, especially when referring to physical discomfort or pain in a specific part of the body.
+
+For example:
+
+- My muscles are sore after the intense workout.
+- Her throat is sore because she has a cold.
+- I can’t walk properly; my feet are really sore.
+
+However, it’s important to note that **“sore”** is often used to describe a specific type of discomfort, such as the result of muscle strain, injury, or illness, whereas **“hurt”** can have a broader range of meanings and can refer to emotional pain as well.
+
+---
+
+- Would you like to **explore** the city tommorow
+- God idea! Let´s walk arount the **old town**
+
+@[youtube](id|https://youtu.be/pl5WHx8QCVk?si=uIS7OUynCkwvNNjE)
+
+---
+
+Dad met Mom when he was **hitchhinking** across the US. 
+
+@[youtube](id|https://youtu.be/c5BL4RNFr58?si=OdWfZLl03YbBBssA)
+
+---
+
+I´m really busy this year, so I´m not **traveling** much. 
+
+---
+
+I **don´t mind** to **layovers** but not for ten hours!
+
+Not even my playlist can save me because I don't have enough battery life. Well, I suppose, meanwhile, I could do sightseeing in Los Angeles. Perhaps I'll find a cafeteria where I could recharge it.
+
+@[youtube](id|https://youtu.be/OmliBRZUxnk?si=6cSexcqnsfwTsYTG)
+
+---
+
+- How can someone dry their hair after getting out of the hotel pool or shower?
+- You can dry your hair with a towel, or you can find a hair dryer in your room.
+
+---
+
+- What’s a typical way of paying for a subway or bus ride that doesn’t accept cash?
+- In Mexico, you can pay for subway rides and certain bus rides with a card. You can recharge the card using a machine. Simply insert the card into the machine, pay the amount, and your card will be recharged
+
+---
+
+- How do you usually get permission to enter an office building?
+- You can usually get permission to enter an office building with an access card, visitor pass, or authorization from the front desk.
+
+---
+
+- How can someone find their way to a popular tourist sight if they’re not familiar with the city?
+- You can use a map. You could even use the GPS in your smartphone.
+
+---
+
+- How do you sign in to your work email account?
+- You can enter with your credentials, using your username and password.
+
+---
+
+Being early is on time, being on time is late.
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
 
 <div class="badge-base LI-profile-badge" data-locale="es_ES" data-size="large" data-theme="dark" data-type="HORIZONTAL" data-vanity="fernando-sanchez-mejia" data-version="v1"><a class="badge-base__link LI-simple-link" href="https://mx.linkedin.com/in/fernando-sanchez-mejia?trk=profile-badge">Fernando Sanchez Mejia</a></div>
-
-
-
-
-
-
-
-
-
-
 
