@@ -588,13 +588,13 @@ Direct flight means without stopping.
 
 Is this a direct flight to London, or will we have to stop in another city first. 
 
-[DirectFlight.PNG](DirectFlight.PNG "DirectFlight")
+![DirectFlight.PNG](DirectFlight.PNG "DirectFlight")
 
 ---
 
 There used to be direct flights from here to Madrid. 
 
-[Madrid.PNG](Madrid.PNG "Madrid")
+![Madrid.PNG](Madrid.PNG "Madrid")
 
 ---
 
@@ -615,25 +615,25 @@ Here are some examples of how the word "get" can be used as a synonym for "under
 - "Can you help me get this?" (meaning "understand this")
 - "I get it now." (meaning "I understand now")
 
-[Get.PNG](Get.PNG "Get")
+![Get.PNG](Get.PNG "Get")
 
 ---
 
 He says the bus has already **departed**
 
-[Departed.PNG](Departed.PNG "Departed")
+![Departed.PNG](Departed.PNG "Departed")
 
 ---
 
 Passengers in Row A to F may board the plane at this time.
 
-[PassengersII.PNG](PassengersII.PNG "PassengersII")
+![PassengersII.PNG](PassengersII.PNG "PassengersII")
 
 ---
 
 I hope we can find a direct flight to Colombia
 
-[Colombia.PNG](Colombia.PNG "Colombia")
+![Colombia.PNG](Colombia.PNG "Colombia")
 
 ---
 
@@ -645,7 +645,7 @@ I
 
 - Sorry, I´ll try to explain what I mean. 
 
-[GetAndTry.PNG](GetAndTry.PNG "GetAndTry")
+![GetAndTry.PNG](GetAndTry.PNG "GetAndTry")
 
 ---
 
@@ -655,7 +655,7 @@ Our flight won´t depart if this strom continues.
 
 Sorry, could you repeat that? I didn´t get what you were saying.
 
-[GetII.PNG](GetII.PNG "GetII")
+![GetII.PNG](GetII.PNG "GetII")
 
 ---
 
@@ -665,7 +665,7 @@ You need to show ID when you´re **boarding** the plane.
 
 I´m sorry, ma´am but your plane has just **departed**
 
-[DepartedII.PNG](DepartedII.PNG "DepartedII.PNG")
+![DepartedII.PNG](DepartedII.PNG "DepartedII.PNG")
 
 ---
 
@@ -677,7 +677,7 @@ When we went **backpacking**, we couldn´t afford nice **hotels**, so we saty in
 
 I stayed at some great **hostels** when I went **backpacking**
 
-[Hostels.PNG](Hostels.PNG "Hostels")
+![Hostels.PNG](Hostels.PNG "Hostels")
 
 ---
 
@@ -691,7 +691,7 @@ I only had dollars, so I went to the **currency exchange** at the airport and go
 
 Would you mind saying that again?
 
-[Again.PNG](Again.PNG "Again")
+![Again.PNG](Again.PNG "Again")
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/eW2qlKa6oHw?si=sdjyyWk6wZvIVHHK" frameborder="0" allowfullscreen></iframe>
 
@@ -703,25 +703,25 @@ Mia is **away** this week, an I´m really missing her!
 
 He feels sick after riding the bus through the mountains.
 
-[Mountains.PNG](Mountains.PNG "Mountains")
+![Mountains.PNG](Mountains.PNG "Mountains")
 
 ---
 
 Frida has been riding the same bus for nearly fifty years!
 
-[Frida.PNG](Frida.PNG "Frida")
+![Frida.PNG](Frida.PNG "Frida")
 
 ---
 
 Tickets were cheap until they **increased** the **fares**
 
-[Fares.PNG](Fares.PNG "Fares")
+![Fares.PNG](Fares.PNG "Fares")
 
 ---
 
 Do you know if there´s a **hostel** on this street?
 
-[HostelsII.PNG](HostelsII.PNG "HostelsII.PNG")
+![HostelsII.PNG](HostelsII.PNG "HostelsII.PNG")
 
 ---
 
