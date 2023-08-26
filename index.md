@@ -721,7 +721,7 @@ Tickets were cheap until they **increased** the **fares**
 
 Do you know if there´s a **hostel** on this street?
 
-![HostelsII.PNG](HostelsII.PNG "HostelsII.PNG")
+![HostelsII.PNG](HostelsII.PNG "HostelsII")
 
 ---
 
@@ -836,6 +836,66 @@ Not even my playlist can save me because I don't have enough battery life. Well,
 ---
 
 Being early is on time, being on time is late.
+
+---
+
+
+But if I sit here, I **won´t be able** to see the clouds. 
+
+![Clouds.PNG](Clouds.PNG "Clouds")
+
+If you need to humiliate in order to correct, you don't know how to teach. Go4More. 
+
+---
+
+The bridge is closed, but you can take the ferry.
+
+![Bridge.PNG](Bridge.PNG "Bridge")
+
+---
+
+Mia is **away** this week, andd I´m really **missing** her!
+
+![Away.PNG](Away.PNG "Away")
+
+---
+
+This bank also does **currency exchange** when you need euros instead of dollars. 
+
+![CurrencyExchange.PNG](CurrencyExchange.PNG "CurrencyExchange")
+
+---
+
+Won´t it be **cheaper** if we buy **round-trip** tickets?
+
+![Cheaper.PNG](Cheaper.PNG "Cheaper")
+
+---
+
+Excuse me, where´s the currency exchange? I need to **exchange** some money.
+
+![CurrencyExchangeII.PNG](CurrencyExchangeII.PNG "CurrencyExchangeII")
+
+---
+
+Where is the currency exchange?
+
+![CurrencyExchangeIII.PNG](CurrencyExchangeIII.PNG "CurrencyExchangeIII")
+
+---
+
+Our flight won´t **depart** if this storm **continues**
+
+![Storm.PNG](Storm.PNG "Storm")
+
+---
+
+- Are you ready for the race this **weekend**?
+- Yes, I´ve been **training hard!**
+
+![TrainingHard.PNG](TrainingHard.PNG "Training Hard")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4NRXx6U8ABQ?si=umnExuMlB5-kKb9t" frameborder="0" allowfullscreen></iframe>
 
 ---
 
