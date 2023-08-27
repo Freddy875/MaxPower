@@ -929,6 +929,48 @@ Fred the turtle is **hoping** to the **hitchhike** to the city, but Oscar isn´t
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qDRORgoZxZU?si=GSCvTYoS_jD1vjC3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+---
+
+**Hold on**, I haven´t finished **packing** my bag yet!
+
+![HoldOn.PNG](HoldOn.PNG "Hold On")
+
+---
+
+David´s happy because he´s on **vacation** for a **whole week**
+
+![Vacation.PNG](Vacation.PNG "Vacation")
+
+---
+
+Wow, Debbie, your **daily routine** is so boring!
+
+![DailyRoutine.PNG](DailyRoutine.PNG "Daily Routine")
+
+---
+
+I **have been** really busy since I started **college**.
+
+![College.PNG](College.PNG "College.PNG")
+
+---
+
+Don´t tell Grandpa my tickets is **one-way!**
+
+
+![OneWay.PNG](OneWay.PNG "OneWay.PNG")
+
+---
+
+If we rent a car, we can drive **wherever** we need to go. 
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5yXQJBU8A28?si=lxPn-OMUJLUQqPNO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/weRHyjj34ZE?si=TZi85D3z_QjOdayL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iAP9AF6DCu4?si=QBd8W4BOCcx-xJ4H" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
 
 ---
 
