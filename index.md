@@ -1138,6 +1138,141 @@ Could you **ride** a bike all over the town when you were a kid?
 
 ---
 
+If you ask me, the media was **lying** to us!
+
+![Media.PNG](Media.PNG "The media was lying us!")
+
+---
+
+What's your favorite movie from the nineteen nineties?
+
+![FavoriteMovie.PNG](FavoriteMovie.PNG "Favorite Movie")
+
+1. The Shawshank Redemption (1994) - A drama about the lives of two imprisoned men over a span of several years, directed by Frank Darabont.
+
+2. Pulp Fiction (1994) - A Quentin Tarantino film that weaves interconnected stories of crime, violence, and redemption.
+
+3. Jurassic Park (1993) - Directed by Steven Spielberg, this sci-fi adventure features a theme park with genetically-engineered dinosaurs that break loose.
+
+4. Titanic (1997) - A romantic drama directed by James Cameron, set against the backdrop of the ill-fated maiden voyage of the Titanic.
+
+5. The Matrix (1999) - A groundbreaking sci-fi film directed by the Wachowskis, exploring the concept of a simulated reality.
+
+6. Forrest Gump (1994) - This heartwarming film follows the life of a man with low intelligence, played by Tom Hanks, who inadvertently influences several defining historical events.
+
+7. Toy Story (1995) - Pixar's first feature-length animated film, which follows the secret lives of toys when their owner isn't around.
+
+8. The Lion King (1994) - A beloved Disney animated film about a young lion prince's journey to reclaim his rightful place as king.
+
+9. Goodfellas (1990) - Directed by Martin Scorsese, this crime drama provides an inside look into the life of a mobster.
+
+10. Home Alone (1990) - A comedy about a young boy who is accidentally left behind when his family goes on vacation for Christmas, and he must defend his home from burglars.
+
+11. Schindler's List (1993) - Steven Spielberg's powerful film about a German businessman who saves the lives of more than a thousand Polish-Jewish refugees during the Holocaust.
+
+12. Terminator 2: Judgment Day (1991) - A sci-fi action film directed by James Cameron, featuring a cyborg sent back in time to protect a young boy from a more advanced and deadly cyborg.
+
+13. The Silence of the Lambs (1991) - A psychological thriller about an FBI trainee seeking the help of a brilliant but insane serial killer to catch another serial killer.
+
+14. Fight Club (1999) - Based on the novel by Chuck Palahniuk, this film delves into the world of underground fighting and consumer culture.
+
+15. Beauty and the Beast (1991) - A Disney animated musical that tells the story of a young woman who forms an unlikely bond with a prince cursed to live as a beast.
+
+---
+
+Doesn't the smell of the barbecue **remind** you of summer?
+
+![Summer.PNG](Summer.PNG "Summer")
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ebXbLfLACGM?si=EdKN82E0iXL9RlYc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+The band **recorded** their first hit song in the nineteen sixties. 
+
+![TheBand.PNG](TheBand.PNG "The Band")
+
+1. **Nirvana**
+
+2. **Backstreet Boys**
+
+3. **Spice Girls**
+
+3. **Red Hot Chili Peppers**
+
+4. **Oasis**
+
+5. **Pearl Jam**
+
+6. **Metallica**
+
+7. **Guns N' Roses**
+
+8. **The Cranberries**
+
+---
+
+The new country **was created** in the nineteen nineties. 
+
+1. **Eslovaquia**
+
+2. **Eritrea**
+
+3. **Palaos**
+
+4. **Bosnia y Herzegovina**
+
+5. **Croacia**
+
+6. **Eslovenia**
+
+7. **Moldavia**
+
+8. **Armenia**
+
+9. **Azerbaiyán**
+
+10. **Georgia**
+
+11. **Kirguistán**
+
+12. **Uzbekistán**
+
+![Country.PNG](Country.PNG "Country")
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/12DZ_9x8n0A?si=WfUyN2VD7dPOWSbM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+When I was a **teenager**, I could stay up all night and not feel tired the next day!
+
+![Teenager.PNG](Teenager.PNG "Teenager")
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/98WtmW-lfeE?si=JV8AOklVjjNHygGX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+Charlie reminds me of my **ex-boyfriend.**
+
+![Ex-Boyfriedn.PNG](Ex-Boyfriedn.PNG "Ex-Boyfriedn")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jUOdO5dqPeU?si=TOpnm17Us4xCxBbQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+If you ask me, Elvis's best song is **"Can't Help Falling in Love"**, He **recroded** it in the early ninetieen sixties. I **sang** it at my wedding!
+
+![Challenger.PNG](Challenger.PNG "Challenger")
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vGJTaP6anOU?si=iWVJm3fi4U11wZkj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
 
 ## About the autor.
 
