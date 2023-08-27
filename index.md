@@ -862,7 +862,7 @@ Mia is **away** this week, andd I´m really **missing** her!
 
 This bank also does **currency exchange** when you need euros instead of dollars. 
 
-![CurrencyExchange.PNG](CurrencyExchange.PNG "CurrencyExchange")
+![CurrencyExchange.PNG](CurrencyExchange.PNG "Currency Exchange")
 
 ---
 
@@ -874,13 +874,16 @@ Won´t it be **cheaper** if we buy **round-trip** tickets?
 
 Excuse me, where´s the currency exchange? I need to **exchange** some money.
 
-![CurrencyExchangeII.PNG](CurrencyExchangeII.PNG "CurrencyExchangeII")
+![CurrencyExchangeII.PNG](CurrencyExchangeII.PNG "Currency Exchange II")
 
 ---
 
 Where is the currency exchange?
 
-![CurrencyExchangeIII.PNG](CurrencyExchangeIII.PNG "CurrencyExchangeIII")
+![CurrencyExchangeIII.PNG](CurrencyExchangeIII.PNG "Currency Exchange III")
+
+![CurrencyExchangeIV.PNG](CurrencyExchangeIV.PNG "Currency Exchange IV")
+
 
 ---
 
@@ -964,15 +967,177 @@ Don´t tell Grandpa my tickets is **one-way!**
 
 If we rent a car, we can drive **wherever** we need to go. 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5yXQJBU8A28?si=lxPn-OMUJLUQqPNO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+![RentCar.PNG](RentCar.PNG "Rent Car")
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/weRHyjj34ZE?si=TZi85D3z_QjOdayL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5yXQJBU8A28?si=lxPn-OMUJLUQqPNO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/iAP9AF6DCu4?si=QBd8W4BOCcx-xJ4H" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+---
+
+They **put off** the cruise until the next day.
+
+![Cruise.PNG](Cruise.PNG "Cruise")
+
+---
+
+Should we ride the trian, or should we walk?
+
+![Train.PNG](Train.PNG "Train")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kVpv8-5XWOI?si=9jM8jSPKgfRI53O-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+You won the tennis **championship, congratulations!**
+
+![Championship.PNG](Championship.PNG "Championship")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/04854XqcfCY?si=g-Rt-mmVn1zDQqSi" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+You can´t go **backpaking** through the desert **alone!**
+
+![Backpacking.PNG](Backpacking.PNG "Backpacking")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1-xGerv5FOk?si=tYG3CvYJteim9QSo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+I can´t wait to **get off** work and go for a **swim!**
+
+![Swim.PNG](Swim.PNG "Swim")
 
 
 ---
+
+- He **sits down** and open his breifcase.
+
+- No thnaks. I don´t eat during **business meetings**
+
+- Why should I give you this job?
+
+- What are your **goals** for the future?
+
+![Story.PNG](Story.PNG "Story")
+ 
+---
+
+We **either** went to my aunt's house or my grandmother's.
+
+![Either.PNG](Either.PNG "Either")
+
+---
+
+- How long was your **layover?**
+
+- Were you bored in the airport?
+
+![Layover.PNG](Layover.PNG "Layover")
+
+
+---
+
+If they lose your **luggage**, call this number.
+
+![Luggage.PNG](Luggage.PNG "Luggage")
+
+---
+
+Who's **looking after** the dog while you're on vacation?
+
+![VacationII.PNG](VacationII.PNG "Vacation II")
+
+---
+
+I **quit** my job last month, so I'm not **working** now.
+
+![Quit.PNG](Quit.PNG "Quit.PNG")
+
+---
+
+I **was born** in 1992m and my two girls **were born** in 2016!
+
+![BeBorn.PNG](BeBorn.PNG "Be Born")
+
+---
+
+Marcel's dog travels with him **wherever** he goes.
+
+
+![Dog.PNG](Dog.PNG "Dog")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/weRHyjj34ZE?si=TZi85D3z_QjOdayL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+Ms. Lee, this is just a **hostels**, not a **luxury hotel!** 
+
+![Luxury.PNG](Luxury.PNG "Luxury")
+
+---
+
+Here, we **celebrate Christmas** on **December twenty-fifth.**
+
+![Christmas.PNG](Christmas.PNG "Christmas")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dkq3LD-4pmM?si=6Dt7XWplQt1XWaOG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+It **won't take** too long if we **take** the subway.
+
+![Take.PNG](Take.PNG "Take")
+
+---
+
+The movie was **set** in 1802.
+
+![Set.PNG](Set.PNG "Set")
+
+---
+
+What a **useful** invention!
+
+![Useful.PNG](Useful.PNG "Useful")
+
+---
+
+He **moved** to New York in the nineteen sixties.
+
+![Moved.PNG](Moved.PNG "Moved")
+
+---
+
+When I was a child, we could **swim** here.
+
+![SwimII.PNG](SwimII.PNG "Swim II")
+
+---
+
+If you ask me, nothing **happened!**
+
+![Happened.PNG](Happened.PNG "Happened")
+
+---
+
+Did anything interesting happen in the nineteen nineties?
+
+![HappenedII.PNG](HappenedII.PNG "Happened II")
+
+---
+
+Could you **ride** a bike all over the town when you were a kid?
+
+![Bike.PNG](Bike.PNG "Bike")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GugsCdLHm-Q?si=iyLFrikQP1He1uRc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+---
+
 
 ## About the autor.
 
