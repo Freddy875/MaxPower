@@ -844,17 +844,23 @@ But if I sit here, I **won´t be able** to see the clouds.
 
 ![Clouds.PNG](Clouds.PNG "Clouds")
 
-If you need to humiliate in order to correct, you don't know how to teach. Go4More. 
+If you need to humiliate in order to correct, you don't know how to teach. @Go4More. 
+
+On the other hand, in platforms like @Platzi and @Duolingo, they aim to develop your potential.
+
+I've lost the count of the times that I've Laughting of Loud with the story and Excersice of @Duolingo and @Platzi. It called Gamification, what means to learn playing. On the other hand Go4More only made me cry and I didn't learn nothing.
+
+#education #eLearning #English #Platzi #Duolingo #B2 
 
 ---
 
-The bridge is closed, but you can take the ferry.
+The **bridge** is closed, but you can take the ferry.
 
 ![Bridge.PNG](Bridge.PNG "Bridge")
 
 ---
 
-Mia is **away** this week, andd I´m really **missing** her!
+Mia is **away** this week, and I´m really **missing** her!
 
 ![Away.PNG](Away.PNG "Away")
 
@@ -982,7 +988,7 @@ They **put off** the cruise until the next day.
 
 ---
 
-Should we ride the trian, or should we walk?
+Should we ride the train, or should we walk?
 
 ![Train.PNG](Train.PNG "Train")
 
@@ -1047,6 +1053,8 @@ If they lose your **luggage**, call this number.
 ---
 
 Who's **looking after** the dog while you're on vacation?
+
+**“Looking after”** is a phrasal verb that means taking care of someone or something, ensuring their well-being or maintenance.
 
 ![VacationII.PNG](VacationII.PNG "Vacation II")
 
@@ -1273,6 +1281,98 @@ If you ask me, Elvis's best song is **"Can't Help Falling in Love"**, He **recro
 
 ---
 
+It may be the best invention of the **twenty-first** century!
+
+![BestInvention.PNG](BestInvention.PNG "Best Invention")
+
+---
+
+They **found** the ancient city in the **nineteenth** century. 
+
+The previous phrase reminds me of when I watched the movie **Indiana Jones**, and it recalls the magic that each movie possesses. I liked it because it reminds me of the importance of learning a bit of history.
+
+![AncientCity.PNG](AncientCity.PNG "Ancient City")
+
+---
+
+What important events happened in the **twentieth** century?
+
+![Twentieth.PNG](Twentieth.PNG "Twentieth")
+
+---
+
+In **biology class**, we learned about the discovery of a new kind of plant in the **jungles** of Brazil.
+
+![Biology.PNG](Biology.PNG "Biology")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7PUPNxsRQ0?si=1410EhlmB0DiJahW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o1tj2zJ2Wvg?si=kNFM-qglBJKVT_q8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+What is the **population** of the city?
+
+![Population.PNG](Population.PNG "Population")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K1b8AhIsSYQ?si=UveYfRtOL_PfKfun" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+I listened to this awesome song in another awesome movie. **The Lego Movie** has many moral lessons.
+
+- I remember when **Vitruvius** said to Emmet, _"Look at what you achieved when you believe that you are the chosen one."_
+Other lessons:
+- Seeking identity.
+- You can follow the instructions, or you can create your own creations, and both are correct.
+- Anyone can be special.
+- Be creative.
+
+Have you watched this awesome movie? If your answer is affirmative, please tell us in the comments section which other lessons you learned. Also, share another movie that you think can teach us a lot.
+
+---
+
+Doctor Lee is famous for his **discoveries** in medicine. 
+
+![MedicineII.PNG](MedicineII.PNG "MedicineII")
+
+---
+
+Did you know that trains were first used in the **nineteenth** century?
+
+As same as Sheldon Cooper in the Big Bang Theory I love the trains.
+
+![Nineteenth.PNG](Nineteenth.PNG "Nineteenth")
+
+---
+
+It was August **twenty-first** when I bought my first car. I was **twenty-one** years old. 
+
+![MyFirstCar.PNG](MyFirstCar.PNG "My First Car")
+
+---
+
+The population of the city **grew** to the ten thousand people. 
+
+![PopulationII.PNG](PopulationII.PNG "PopulationII")
+
+---
+
+**Thank goodness** for the invention of the dishwasher! It saves so much time!
+
+![Dishwasher.PNG](Dishwasher.PNG "Dishwasher")
+
+---
+
+Why was that **discovery** so important?
+
+![Discovery.PNG](Discovery.PNG "Discovery")
+
+---
+
+We left the country **at the end** of the twentieth century.
+
+![TwentiethII.PNG](TwentiethII.PNG "TwentiethII")
+
+---
 
 ## About the autor.
 
