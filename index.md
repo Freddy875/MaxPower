@@ -1374,6 +1374,159 @@ We left the country **at the end** of the twentieth century.
 
 ---
 
+Chicago **won** baseball World Series in 2016.
+
+![Chicago.jpeg](Chicago.jpeg "Chicago")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1A0MPWseJIE?si=hBKI6OxDrdTSYPid" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+The first **comic book** was pusblished in 1802.
+
+![ComicBook.jpeg](ComicBook.jpeg "Comic Book")
+
+![ActionComics.jpg](ActionComics.jpg "Action Comics #1")
+
+---
+
+The war started in 1992.
+
+![War.jpeg](War.jpeg "War")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ztZI2aLQ9Sw?si=cjBr_zSlA6fGP7Ul" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+**To be honest**, those years were very difficult. 
+
+![HonestI.jpeg](HonestI.jpeg "HonestI")
+
+---
+
+**To be honest** that was the best time of my life. 
+
+![HonestII.jpeg](HonestI.jpeg "HonestII")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Y66j_BUCBMY?si=L1sdU8nN-kELWxaq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+The famous author **was born** in 1802.
+
+![Author.jpeg](Author.jpeg "Author")
+
+---
+
+The country's government changed completely in 1992.
+
+![Government.jpeg](Government.jpeg "Government")
+
+---
+
+The 2016 summer **Olympics** took place in the city of Rio in Brazil. They were the first Olympics to take place in the South America. 
+
+![Olympics.jpeg](Olympics.jpeg "Olympics")
+
+---
+
+I **was born** in 1984
+
+![WasBorn.jpeg](WasBorn.jpeg "I was born")
+
+---
+
+**To be honest**, I can't remember what happened exactly. 
+
+![HonestIII.jpeg](HonestIII.jpeg "HonestIII")
+
+---
+
+In 1802, a **pink lake** was discovered in the middle of an island near Australia. 
+
+![PinkLake.jpeg](PinkLake.jpeg "Pink Lake")
+
+![PinkLakeII.jpg](PinkLakeII.jpg "Pink Lake II")
+
+---
+
+The **relationship** between the two countries has been **peaceful** since the war ended in 2016.
+
+![Peaceful.jpeg](Peaceful.jpeg "Peaceful")
+
+---
+
+Your **birthday** is on September twenty-fifth, isn't it?
+
+![Birthday.jpeg](Birthday.jpeg "Birthday")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jqYxyd1iSNk?si=WU8L0qWK9bwEoL6z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+It's common to work form home **nowadays.**
+
+![NowadaysI.jpeg](NowadaysI.jpeg "NowadaysI")
+
+---
+
+Our **high school** graduation was on June twenty-fifth. 
+
+![HighSchool.jpeg](HighSchool.jpeg "High School")
+
+---
+
+I was tall when I was ten, but I haven't **grown** since then!
+
+![Grown.jpeg](Grown.jpeg "Grown")
+
+---
+
+Am I **imagining** things, or has my nose grown?
+
+![Imagining.jpeg](Imagining.jpeg "Imagining")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ugrAo8wEPiI?si=VMBGdyr8Oa4XjKiS" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+I can't remember who my first grade teacher was. What was her name?
+
+![Grade.jpeg](Grade.jpeg "Grade")
+
+
+---
+
+Albert couldn't remember when his **wedding anniversary** was, so he asked his wife. She said it was May twenty-fifth, 2016. 
+
+![Anniversary.jpg](Anniversary.jpg "Anniversary")
+
+---
+
+It looks like you've grown a lot since high school! You're so tall now!
+
+![GrownII.jpg](GrownII.jpg "GrownII")
+
+---
+
+I remember when there weren't **computers**.
+
+![Computers.jpg](Computers.jpg "Computers")
+
+---
+
+When I was a kid, I **couldn't** communicate with my friends as often as kids **can nowadays!**
+
+![NowadaysII.jpg](NowadaysII.jpg "Nowadays II")
+
+---
+
+Nowadays, it's much more expensive to buy a house. 
+
+![NowadaysIII.jpeg](NowadaysIII.jpeg "Nowadays III")
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
