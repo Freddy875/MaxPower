@@ -1527,6 +1527,12 @@ Nowadays, it's much more expensive to buy a house.
 
 ---
 
+While Machine Learning is a borad field that **encomposses** many different techniques.
+
+Emcomposs = Componer. 
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
