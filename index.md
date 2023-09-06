@@ -1533,6 +1533,16 @@ Emcomposs = Componer.
 
 ---
 
+The word "beforehand" is an adverb in English, and it means "in advance" or "ahead of time." It is used to describe actions or events that occur or are done before a specific point in time or before a particular event. 
+
+For example:
+- "I prepared the presentation beforehand." (I prepared the presentation in advance.)
+- "You should always read the instructions beforehand." (You should read the instructions before starting.)
+
+If you have any more questions or need further assistance, feel free to ask!
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
