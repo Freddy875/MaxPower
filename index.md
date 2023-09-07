@@ -1557,6 +1557,39 @@ If we get a puppy, I need you to take care of it!
 
 ---
 
+Grandpa doesn't want us to call him **elderly**. He says he's not old but has lots of life experience!
+
+![Grandpa.jpg](Grandpa.jpg "Grandpa")
+
+---
+
+I sent her flowers to show that I **appreciate** her help!
+
+![Appreciate.jpg](Appreciate.jpg "Appreciate")
+
+---
+
+- I really **appreciate** all the work you did today.
+- I'm always happy to help!.
+
+![AppreciateII.jpg](AppreciateII.jpg "AppreciateII")
+
+---
+
+You never expected her to give you a gift, did you?
+
+![Gift.jpg](Gift.jpg "Gift")
+
+---
+
+I exécted him yo be **asleep** but he was **aweke** and talking. 
+
+![Aweke.jpg](Aweke.jpg "Aweke")
+
+
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
