@@ -1582,9 +1582,57 @@ You never expected her to give you a gift, did you?
 
 ---
 
-I exécted him yo be **asleep** but he was **aweke** and talking. 
+I expected him yo be **asleep** but he was **aweke** and talking. 
 
 ![Aweke.jpg](Aweke.jpg "Aweke")
+
+---
+
+After school, Grandma used to watch my sister and me.
+
+That’s so sweet. I remembre that my Grandma also usted to watch my brother and me.
+
+![GrandmaII.jpg](GrandmaII.jpg "GrandmaII")
+
+---
+
+- Oh, I did't expect you to give me a gift. Thank you so much!
+- You're welcome! I hope you like it.
+
+![GiftII.jpg](GiftII.jpg "Gift")
+
+---
+
+I asked my neighbor to take care of my cat while I was away. I didn't expect him to clean the house, too!
+
+![Neighbor.jpg](Neighbor.jpg "Neighbor")
+
+---
+
+- Thank you for watching my puppy!
+- No problem! I love dogs!
+
+![PuppyIII.jpg](PuppyIII.jpg "Puppy III")
+
+---
+
+I appreciate this opportunity to improve my skills.
+
+![Skill.jpg](Skill.jpg "Skil")
+
+---
+
+We just wanted to thank you somehow.
+
+![Somehow.jpg](Somehow.jpg "Somehow")
+
+---
+
+Thank you for the invitation! We'd be **delighted** to come!
+
+![Delighted.jpg](Delighted.jpg "Delighted")
+
+---
 
 
 
