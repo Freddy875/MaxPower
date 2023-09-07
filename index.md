@@ -1527,9 +1527,38 @@ Nowadays, it's much more expensive to buy a house.
 
 ---
 
+While Machine Learning is a borad field that **encomposses** many different techniques.
+
+Emcomposs = Componer. 
+
+---
+
+The word "beforehand" is an adverb in English, and it means "in advance" or "ahead of time." It is used to describe actions or events that occur or are done before a specific point in time or before a particular event. 
+
+For example:
+- "I prepared the presentation beforehand." (I prepared the presentation in advance.)
+- "You should always read the instructions beforehand." (You should read the instructions before starting.)
+
+The word “beforehand” is an adverb in English, and it means “in advance” or “ahead of time.” It is used to describe actions or events that occur or are done before a specific point in time or before a particular event.
+
+For example:
+
+“I prepared the presentation beforehand.” (I prepared the presentation in advance.)
+“You should always read the instructions beforehand.” (You should read the instructions before starting.)
+If you have any more questions or need further assistance, feel free to ask!
+
+Beforehand es lo que en México diriamos **“De ante mano.”**
+
+---
+
+If we get a puppy, I need you to take care of it!
+
+![Puppy.jpg](Puppy.jpg "Puppy")
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
 
 <div class="badge-base LI-profile-badge" data-locale="es_ES" data-size="large" data-theme="dark" data-type="HORIZONTAL" data-vanity="fernando-sanchez-mejia" data-version="v1"><a class="badge-base__link LI-simple-link" href="https://mx.linkedin.com/in/fernando-sanchez-mejia?trk=profile-badge">Fernando Sanchez Mejia</a></div>
-
