@@ -1634,7 +1634,22 @@ Thank you for the invitation! We'd be **delighted** to come!
 
 ---
 
+Don't worry, the problem will **get solved** somehow.
 
+![Solved.jpg](Solved.jpg "Solved")
+
+---
+
+- Yes, we'd **delighted** to come to your wedding!
+- Great, we'll see you there!
+
+![DelightedII.jpg](DelightedII.jpg "DelightedII")
+
+---
+
+Oh wow! Is that for me? What an unexpected surprise!
+
+![Surpirse.jpg](Surpirse.jpg "Surpirse")
 
 ---
 
