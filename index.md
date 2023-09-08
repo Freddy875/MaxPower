@@ -1653,6 +1653,185 @@ Oh wow! Is that for me? What an unexpected surprise!
 
 ---
 
+We appreciate you **inviting** us!
+
+![Inviting.jpg](Inviting.jpg "Inviting")
+
+---
+
+    I appreciate you saying that, but you know it's not true!
+
+![True.jpg](True.jpg "True")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AR8D2yqgQ1U?si=jfeyuaKZyYLOhWJM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+It was nice of you to invite us!
+
+As they say in the movie Everything Everywhere All at Once. It’s better to be kind.
+
+![Nice.jpg](Nice.jpg "Nice")
+
+---
+
+I really appreciate you **making** dinner tonight.
+
+![Dinner.jpg](Dinner.jpg "Dinner")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nntd2fgMUYw?si=Uc-p3CJk-BvXykKW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+- I **helped** Mom with the **cleaning** today.
+- Thanks, it was nice of you to help!
+
+![NiceII.jpg](NiceII.jpg "Nice II")
+
+---
+
+We had an **unexpected** delay, so we got there late.
+
+![Delay.jpg](Delay.jpg "Delay")
+
+---
+
+Thanks for coming over and helping me clean! I'm so **grateful!**
+
+![Grateful.jpg](Grateful.jpg "Grateful")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/WUOtCLOXgm8?si=7wmebMIV3ykIciRa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+- I'm very **grateful** for everything you did at the party today.
+- You're welcome! I'm always happy to help!
+
+![Grateful2.jpg](Grateful2.jpg "Grateful 2")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mW1dbiD_zDk?si=eIyrcC3NMwB3O4-u" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+You're **awesome!**
+
+![Awesome.jpg](Awesome.jpg "Awesome")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Z7Z_6LmVhos?si=TVrhM0uN0sKqUveM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+How can my brother have such an awesome **girlfriend?**
+
+![Girlfriend.jpg](Girlfriend.jpg "Girlfried")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Bg59q4puhmg?si=MqQBk9k1ImQc5LP4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+Your gift made me so happy.
+
+![Happy.jpg](Happy.jpg "Happy")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xx0CoCXyya0?si=7ArKOyPnao3BTl1I" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+It was great that she **brought** us candy!.
+
+![Candy.jpg](Candy.jpg "Candy")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-ScjucUV8v0?si=gNkyBziS1xlJ-BJ_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+When you **handle** a problem, you do that necessary work to slove it. 
+
+---
+
+When I **passed** my final exams, I **felt** so **proud**. My mom was happy, too.
+
+---
+
+We all feel very proud of you.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5hid10EgMXE?si=C2kaq8GayClUxXHZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+If an experience is positive, you enjoy it.
+
+---
+
+I don't want to spend much money today.
+
+---
+
+Sarah always has a positive attitude, so she's easy to work with.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9BMwcO6_hyA?si=waKyNXrt6i7s4Fyy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+Thank you for having a positive attitude yesterday.
+
+---
+
+Your gift made my day!
+
+---
+
+Future generations will appreciate that we did this.
+
+---
+
+Rose sees a future whenever she looks in the mirror.
+
+If they wanna make the world a better place
+Take a look at yourself and then make a change.
+
+You also can listen this phrase in "The Lego Batman movie."
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PivWY9wn5ps?si=43OzhxRLhpy1X0tc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+He's not telling anyone about his future plans.
+
+---
+
+Thanks for **handling** the problem. 
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgM3r8xKfGE?si=EqXHTbVr_iVUm755" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+Of course I'll hlep you with that project. 
+
+---
+
+Thank you so much! You've made my day!
+
+---
+
+Oh it'll make her day when she sees the flowers.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/i9kZZJzSNeo?si=_qDR6BLNYjCUiahU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
+I need some advise about how to handle the issue. 
+
+---
+
+I'm sorry that I **copied** my friend's homework, Mrs. Brown. But I promise I'll never do it again!
+
+![Promise.jpg](Promise.jpg "Promise")
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5HI_xFQWiYU?si=bMzHf_8n61lRl6w_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+---
+
 ## About the autor.
 
  <script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
